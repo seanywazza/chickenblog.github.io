@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome TO THE CHICKEN BLOG
 
 You can use the [editor on GitHub](https://github.com/seanywazza/hello-world/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
