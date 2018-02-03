@@ -2,7 +2,9 @@
 
 here is where you can see the cutest or funnyest CHICKENS
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+this is like chicken heaven but better
+
+![MY CHICKEN](https://www.sciencedaily.com/images/2017/05/170502204556_1_900x600.jpg)
 
 ### Markdown
 
