@@ -22,3 +22,15 @@ here is where you can see the cutest or funnyest CHICKENS
 
 ## chicken vs cat... who will win
 ![cat CHICKEN](http://www.vitamin-ha.com/wp-content/uploads/2012/04/Funny-chicken-photos-image-pic-cat-chicken.jpg)
+
+## #close up
+![face of a CHICKEN](https://i.ytimg.com/vi/JvyK0tr6htM/maxresdefault.jpg)
+
+## I told you they can do sport
+![sport CHICKEN](https://i.ytimg.com/vi/68RKNJkarAM/maxresdefault.jpg)
+
+## nice shoes
+![fancy CHICKEN](http://www.likable.info/img/h/o/how-do-i-look-.png)
+
+## fancy and cute
+![cute CHICKEN](https://tailandfur.com/wp-content/uploads/2016/03/30-Funny-Pictures-of-Chicken-8.jpg)
