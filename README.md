@@ -34,3 +34,15 @@ here is where you can see the cutest or funnyest CHICKENS
 
 ## fancy and cute
 ![cute CHICKEN](https://tailandfur.com/wp-content/uploads/2016/03/30-Funny-Pictures-of-Chicken-8.jpg)
+
+## eat it or keep it
+![samwhitch CHICKEN](http://2.bp.blogspot.com/-1CiriuFL0Yw/T5Plmui5h4I/AAAAAAAHgSc/JfjdTpFwB68/s1600/funny+chickens,+chicken+photos,+funny+birds+photo+(18).jpg)
+
+## run.........................
+![... CHICKEN](http://s1.ibtimes.com/sites/www.ibtimes.com/files/styles/lg/public/2014/02/06/trexchicken.png)
+
+## sing my chickens
+![singing CHICKEN](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRRKQPjPYN4NsWG9koEBSdMq73fyFhOosk8MzEf1JlKdStGCISz)
+
+## A DREAM OF MINE
+![horse CHICKEN](http://lefunny.net/wp-content/uploads/2014/02/Funny-Chicken-ride.jpg)
