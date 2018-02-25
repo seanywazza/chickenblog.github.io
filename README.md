@@ -46,3 +46,9 @@ here is where you can see the cutest or funnyest CHICKENS
 
 ## A DREAM OF MINE
 ![horse CHICKEN](http://lefunny.net/wp-content/uploads/2014/02/Funny-Chicken-ride.jpg)
+
+## jokes on chickens 
+![bro CHICKEN](http://i0.kym-cdn.com/photos/images/newsfeed/000/560/473/8f9.jpg)
+![bro CHICKEN](https://www.askideas.com/media/39/Fried-Chicken-Aint-Nobody-Got-Time-Fo-Dat-Funny-Chicken-Meme-Picture.jpg)
+![bro CHICKEN](https://img.memecdn.com/scary-chicken-wants-her-eggs_o_2813409.jpg)
+
